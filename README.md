@@ -3,8 +3,8 @@
 This Is Version 1 
 Realesed 1/20/2020
 Discord: BeatZ#0001
-Instagram: qxe4
-PSN: BeatZVPN/BSBD
+Instagram: qxe4/beatzvpn
+PSN: BeatZVPN
 -----------------------------------------
 To Begin Must Do The Following
 Must Copy And Paste::      
